@@ -1,1 +1,1 @@
-Steve jobs
+Steve Jobs
